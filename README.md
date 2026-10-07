@@ -1,3 +1,0 @@
-My disgusting projector
-
-Hi
